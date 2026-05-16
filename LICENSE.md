@@ -1,4 +1,4 @@
-# 
+# elite Polymarket Module | cross-chain-arbitrage + smart-contract-integration offers the most advanced Polymarket module, with cross-chain-arbitrage and smart-contract-integration.
 
 
 
